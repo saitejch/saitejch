@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Heyy!!!<br>I'm Saiteja and I'm currently looking for an Job  or an Internship.<br>I have completed My Graduation in Bsc.Computer science & cloud computing.
 
 
