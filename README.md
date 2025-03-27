@@ -1,5 +1,5 @@
 # About Me:
-Heyy!!!<br>I'm Saiteja and I'm currently looking for an Job  or an Internship.<br>I have completed My Graduation in Bsc.Computer science & cloud computing.
+Hi, I’m **Saiteja**! I’ve completed my **BSc in Computer Science and Cloud Computing** from **Loyola Academy**. I’m a **fast learner** and a **software enthusiast** with a strong passion for **cloud technologies**. I love exploring innovative solutions and staying up to date with the latest advancements in the tech world. My curiosity and dedication drive me to continuously enhance my skills and contribute effectively to any project I take on.
 
 
 ## 🌐 Socials:
